@@ -14,4 +14,4 @@
 如果觉得这个项目还不错的话，请给个star，权当debug de 得头秃前的纪念了
 
 QQ群如下，欢迎各位大佬来我的小窝玩：
-[my_group](https://github.com/AntheaLaffy/resources/raw/main/my_group.png)
+[my group](https://github.com/AntheaLaffy/resources/raw/main/my-group.jpg)
